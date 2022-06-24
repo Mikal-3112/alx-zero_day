@@ -1,1 +1,2 @@
 rreaaadrniggtt
+coding the codes
